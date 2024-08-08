@@ -11,4 +11,4 @@ meu nome e Lorena arcanjo
 - lorena.archanjo.farias@escola.pr.gov.br
 - @lorenaafariaas_
 
-!{}(https://media1.tenor.com/m/CFdwvyWFto4AAAAC/death-note.gif)
+![](https://media1.tenor.com/m/JdlGnDa1Pq8AAAAC/death-note-ryuk.gif)
